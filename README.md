@@ -16,4 +16,9 @@ Links to all Bluey Edits by me
 [i edited bluey for 8 mins bc idk wat to do](https://oofyb9.rf.gd/9/S1E7.html)  
 
 [i edited bluey for 7 1/2 mins bc idk wat to do](https://oofyb9.rf.gd/9/S1E8.html)  
-
+  
+[i edited bumpy and the wise old wolfhound for no reason](https://oofyb9.rf.gd/9/S1E9.html)  
+  
+[i edited bluey for 30 secs bc i want to watch the sign](https://oofyb9.rf.gd/9/S1E10.html)  
+  
+[i edited the sign bc its cool](https://oofyb9.rf.gd/9/S1E11.html)  
